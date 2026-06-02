@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOLD950329HSRNPV09
+GOLD950329HSRNPV09
